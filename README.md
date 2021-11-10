@@ -1,1 +1,1 @@
-# academic_resources
+# books and resources
